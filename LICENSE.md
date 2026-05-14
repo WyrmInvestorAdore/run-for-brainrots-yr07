@@ -1,4 +1,4 @@
-#  
+#  run for brainrots rare Script is the best run for brainrots Script, featuring silent aim and custom skins. Safe and powerful for all your needs.
 
 
 
